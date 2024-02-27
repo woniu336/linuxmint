@@ -1,2 +1,2 @@
 # linuxmint
-hhh哈哈哈哈
+汉化99
